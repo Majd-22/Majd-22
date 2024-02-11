@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Majd othman
-- 👀 I’m interested in learn new things
+- 👋 Hi, I’m MajdOT
+- 👀 I’m interested in learning new things
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by my email MajdAltukhais@gmail.com
